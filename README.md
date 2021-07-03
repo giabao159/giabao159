@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @giabao159
+- 👋 Hi, I’m @giabao(Ginz)
 - 👀 I’m interested in ..kinh tế
 - 🌱 I’m currently learning ...thpt
 - 💞️ I’m looking to collaborate on ...facebook
